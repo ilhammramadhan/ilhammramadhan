@@ -31,4 +31,4 @@ Currently working at **MGG Software** and pursuing my CS degree at BINUS Univers
 ## 📫 Reach Me
 
 - **Email:** ilhamram20@gmail.com
-- **LinkedIn:** [Let's connect](https://linkedin.com/in/your-profile)
+- **LinkedIn:** [Let's connect](https://linkedin.com/in/ilhamm-ramadhan)
